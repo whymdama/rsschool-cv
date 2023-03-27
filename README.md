@@ -1,1 +1,1 @@
-# rsschool-cv
+https://whymdama.github.io/rsschool-cv/
